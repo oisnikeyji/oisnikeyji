@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oisnikeyji
 - 👀 I’m interested in here because im a beginning
-- 🌱 I’m currently learning coding and programming
+- 🌱 I’m currently learning want to learn new things
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me email saya
 
